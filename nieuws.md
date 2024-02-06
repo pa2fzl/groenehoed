@@ -4,4 +4,4 @@ Kom kennismaken op een van onze maandelijkse bijeenkomsten. Ongeveer eens in de 
 
 Overweeg je daarna je aan te sluiten, dan maak je daarna nog twee vergaderingen mee. Daarna geef je onze groep te kennen of je lid wilt worden en waarom.
 
-Eerstvolgende gelegenheid: 6 september 2023
+Eerstvolgende gelegenheid: 7 februari 2024
